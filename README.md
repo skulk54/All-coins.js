@@ -1,1 +1,1 @@
-# All-coins.js
+Blooket hacks
